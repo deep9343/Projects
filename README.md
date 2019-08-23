@@ -1,4 +1,4 @@
-# Hello DEEP TALATI HERE
+# Hello, DEEP TALATI HERE!!
 •Seeking a Full time Web/Software Developer position to expand my knowledge and experience in the field of computer programming
 
 •I am an experienced Software Engineer with a demonstrated history of working in the computer software industry. 
